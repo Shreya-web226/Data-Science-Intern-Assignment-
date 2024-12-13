@@ -94,8 +94,8 @@ The output consists of the following:
 For any questions or concerns, please reach out to:
 
 - **Shreya Thakur**
-- Email: [Your Email Address]
-- LinkedIn: [Your LinkedIn Profile]
+- Email: thakurshreya690@gmail.com
+- LinkedIn: https://www.linkedin.com/in/shreya--thakur/
 
 ---
 
